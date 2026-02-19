@@ -1,4 +1,4 @@
-![Assystant](https://assystant.com/wp-content/themes/assystant_themes/images/assystant_logo.svg)
+![Assystant](https://assystant.com/wp-content/uploads/2025/06/Assystant-logo_304-png.png)
 
 # Welcome to Assystant Organization
 
